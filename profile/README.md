@@ -8,13 +8,13 @@
 
 Elite6-27 es una organización hacktivista la cual ataca principalmente gobiernos, empresas, universidades entre otros.
 
-## ¿Quién está en Elite6-27? 
+## ¿Quiénes están en Elite6-27? 
 
 En Elite6-27 están hackers muy conocidos, en su mayoría Black hat y que incluso algunos tienen sus propias organizaciones, también hay grupos públicos para fans, oficiales y no oficiales.
 
 ## ¿Quién creo Elite6-27?
 
-Elite 6-27 fue creado por Virxz y actualmente en la líder es Unknown404, el co líder de Elite6-27 es Genplat.
+Elite 6-27 fue creado por Virxz y actualmente el líder es Unknown404, el co líder de Elite6-27 es Genplat.
 
 ## ¿Fan?
 
