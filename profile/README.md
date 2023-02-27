@@ -24,7 +24,7 @@ Si eres fan en nuestro perfil tendrás varias redes oficiales, así como abajo, 
 
 [Web Oficial](https://elite6-27.cf)
 
-[Discord](https://discord.gg/Fxsenpz54a)
+[Discord](https://discord.gg/elite6-27)
 
 [YouTube](https://youtube.com/@elite6-27)
 
