@@ -24,7 +24,7 @@ Si eres fan en nuestro perfil tendrás varias redes oficiales, así como abajo, 
 
 ### Patreon
 [![](https://c5.patreon.com/external/logo/become_a_patron_button.png)](https://www.patreon.com/elite6-27)
-### Bitcoind
+### Bitcoin
 Wallet: 34MSaTHspfEwNdy13u6tQKSkqXhtJdGgfv
 
 ## Webs y redes
