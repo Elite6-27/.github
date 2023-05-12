@@ -20,6 +20,13 @@ Elite 6-27 fue creado por Virxz y actualmente los líderes son Unknown_404 y Gen
 
 Si eres fan en nuestro perfil tendrás varias redes oficiales, así como abajo, también puedes enviar mensaje por Instagram o Discord para intentar unirte
 
+## Donar
+
+### Patreon
+[![](https://c5.patreon.com/external/logo/become_a_patron_button.png)](https://www.patreon.com/elite6-27)
+### Bitcoind
+Wallet: 34MSaTHspfEwNdy13u6tQKSkqXhtJdGgfv
+
 ## Webs y redes
 
 [Web Oficial](https://elite6-27.cf)
