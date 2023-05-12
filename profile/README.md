@@ -2,7 +2,7 @@
 
 
 
-<a href="https://elite6-27.cf"><img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/linux/linux-original.svg" height="40px" width="40px" /></a>
+<a href="https://elite6-27.cf"><img src="https://cdn.discordapp.com/icons/1067078287651766282/842e43a2139aeed806541526b7784a93.png?size=512" height="40px" width="40px" /></a>
 
 
 
@@ -10,11 +10,11 @@ Elite6-27 es una organización hacktivista la cual ataca principalmente gobierno
 
 ## ¿Quiénes están en Elite6-27? 
 
-En Elite6-27 están hackers muy conocidos, en su mayoría Black hat y que incluso algunos tienen sus propias organizaciones, también hay grupos públicos para fans, oficiales y no oficiales.
+En Elite6-27 están hackers muy conocidos, los mejores en su mayoría Black hat y que incluso algunos tienen sus propias organizaciones, también hay grupos públicos para fans, oficiales y no oficiales.
 
 ## ¿Quién creo Elite6-27?
 
-Elite 6-27 fue creado por Virxz y actualmente el líder es Unknown404, el co líder de Elite6-27 es Genplat.
+Elite 6-27 fue creado por Virxz y actualmente los líderes son Unknown_404 y Genplat.
 
 ## ¿Fan?
 
