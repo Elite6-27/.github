@@ -24,6 +24,8 @@ Si eres fan en nuestro perfil tendrás varias redes oficiales, así como abajo, 
 
 ### Patreon
 [![](https://c5.patreon.com/external/logo/become_a_patron_button.png)](https://www.patreon.com/elite6-27)
+### Ko-Fi
+<a href='https://ko-fi.com/elite6_27' target='_blank'><img height='35' style='border:0px;height:46px;' src='https://az743702.vo.msecnd.net/cdn/kofi3.png?v=0' border='0' alt='Buy Me a Coffee at ko-fi.com' />
 ### Bitcoin
 Wallet: 34MSaTHspfEwNdy13u6tQKSkqXhtJdGgfv
 
