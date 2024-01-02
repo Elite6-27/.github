@@ -2,23 +2,21 @@
 
 ## UNKNOWN_404 HA SIDO DESTITUIDO COMO LÍDER
 
-<a href="https: //elite6-27.cf"><img src="https://cdn.discordapp.com/icons/1067078287651766282/842e43a2139aeed806541526b7784a93.png?tamaño = 512 " altura="40px" ancho="40px" /></a>
+<a href="https://elite6-27.mw"><img src="https://elite6-27.me/Elite6-27.png" altura="40px" ancho="40px"/></a>
 
+Elite 6-27 es propiedad de Dintece y por lo tanto de Genplat, todo el que diga lo contrario miente, bloqueale lo antes posible, los haters ya han tratado de manipular fans y miembros
 
+## ¿Es Elite 6-27 de Dintece? 
 
-Elite6-27 es una organización hacktivista la cual ataca principal gobiernos, empresas, universidades entre otros.
+Elite 6-27 se convirtió en propiedad de Dintece el 01/01/2023, el día de comienzo de las operaciones de Dintece, mas información en https://elite6-27.me
 
-## ¿Quiénes están en Elite6-27? 
+## ¿Es Elite 6-27 legal?
 
-En Elite6-27 están hackers muy conocidos, los mejores en su alcalde Black hat y que incluso también tienen sus propiedades organizativas, también hay grandes públicos para fanáticos, oficiales y no oficiales.
-
-## ¿Quién creo Elite6-27?
-
-Elite 6-27 fue creado por Virxz y actualmente los líderes son Unknown_404 y Genplat.
+Tras la llegada de Genplat al mando, sí
 
 ## ¿Fan?
 
-Si eres fan en nuestro perfil tendrás varias redes oficiales, así como abajo, también puede envidiar mensaje por Instagram o Discord para intentar unirte
+Si eres fan en nuestro perfil tendrás varias redes oficiales abajo, también puede enviar mensajes por correo a genplat@proton.me para intentar unirse a Dintece
 
 ## Donar
 
@@ -27,14 +25,12 @@ Si eres fan en nuestro perfil tendrás varias redes oficiales, así como abajo, 
 ### Ko-Fi
 <a href='https://ko-fi.com/elite6_27' objetivo='_en blanco'><img altura='35' estilo='frontera:0px;altura:46)px; ' src='https://az743702.vo.msecnd.net/cdn/kofi3.png?v = 0 ' frontera='0' alt='Cómprame un café en ko-fi.com' />
 ### Bitcoin
-Cartera: 34MSaTHspfEwNdy13u6tQKSkqXhtJdGgfv
+Wallet: 34MSaTHspfEwNdy13u6tQKSkqXhtJdGgfv
 
 ## Webs y redes
 
-[Web oficial](https: // elite6-27.me)
-
-[Discord](https://discord.gg/elite6-27)
+[Web oficial](https://elite6-27.me)
 
 [YouTube](https://youtube.com/@elite6-27)
 
-[Twitter](
+[Twitter](https://twitter.com/elite6_27)
