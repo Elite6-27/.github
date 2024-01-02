@@ -2,7 +2,7 @@
 
 ## UNKNOWN_404 HA SIDO DESTITUIDO COMO LÍDER
 
-<a href="https://elite6-27.mw"><img src="https://elite6-27.me/Elite6-27.png" altura="40px" ancho="40px"/></a>
+<a href="https://elite6-27.me"><img src="https://elite6-27.me/assets/Elite6-27.png" altura="40px" ancho="40px"/></a>
 
 Elite 6-27 es propiedad de Dintece y por lo tanto de Genplat, todo el que diga lo contrario miente, bloqueale lo antes posible, los haters ya han tratado de manipular fans y miembros
 
