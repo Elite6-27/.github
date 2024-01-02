@@ -1,16 +1,16 @@
 # Elite 6-27
 
+## UNKNOWN_404 HA SIDO DESTITUIDO COMO LÍDER
+
+<a href="https: //elite6-27.cf"><img src="https://cdn.discordapp.com/icons/1067078287651766282/842e43a2139aeed806541526b7784a93.png?tamaño = 512 " altura="40px" ancho="40px" /></a>
 
 
-<a href="https://elite6-27.cf"><img src="https://cdn.discordapp.com/icons/1067078287651766282/842e43a2139aeed806541526b7784a93.png?size=512" height="40px" width="40px" /></a>
 
-
-
-Elite6-27 es una organización hacktivista la cual ataca principalmente gobiernos, empresas, universidades entre otros.
+Elite6-27 es una organización hacktivista la cual ataca principal gobiernos, empresas, universidades entre otros.
 
 ## ¿Quiénes están en Elite6-27? 
 
-En Elite6-27 están hackers muy conocidos, los mejores en su mayoría Black hat y que incluso algunos tienen sus propias organizaciones, también hay grupos públicos para fans, oficiales y no oficiales.
+En Elite6-27 están hackers muy conocidos, los mejores en su alcalde Black hat y que incluso también tienen sus propiedades organizativas, también hay grandes públicos para fanáticos, oficiales y no oficiales.
 
 ## ¿Quién creo Elite6-27?
 
@@ -18,25 +18,23 @@ Elite 6-27 fue creado por Virxz y actualmente los líderes son Unknown_404 y Gen
 
 ## ¿Fan?
 
-Si eres fan en nuestro perfil tendrás varias redes oficiales, así como abajo, también puedes enviar mensaje por Instagram o Discord para intentar unirte
+Si eres fan en nuestro perfil tendrás varias redes oficiales, así como abajo, también puede envidiar mensaje por Instagram o Discord para intentar unirte
 
 ## Donar
 
 ### Patreon
-[![](https://c5.patreon.com/external/logo/become_a_patron_button.png)](https://www.patreon.com/elite6_27)
+[[!](https://c5.patreon.com/external/logo/become_a_patron_button.png)](https://www.patreon.com/elite6_27)
 ### Ko-Fi
-<a href='https://ko-fi.com/elite6_27' target='_blank'><img height='35' style='border:0px;height:46px;' src='https://az743702.vo.msecnd.net/cdn/kofi3.png?v=0' border='0' alt='Buy Me a Coffee at ko-fi.com' />
+<a href='https://ko-fi.com/elite6_27' objetivo='_en blanco'><img altura='35' estilo='frontera:0px;altura:46)px; ' src='https://az743702.vo.msecnd.net/cdn/kofi3.png?v = 0 ' frontera='0' alt='Cómprame un café en ko-fi.com' />
 ### Bitcoin
-Wallet: 34MSaTHspfEwNdy13u6tQKSkqXhtJdGgfv
+Cartera: 34MSaTHspfEwNdy13u6tQKSkqXhtJdGgfv
 
 ## Webs y redes
 
-[Web Oficial](https://elite6-27.cf)
+[Web oficial](https: // elite6-27.me)
 
 [Discord](https://discord.gg/elite6-27)
 
 [YouTube](https://youtube.com/@elite6-27)
 
-[Instagram](https://instagram.com/elite6_27)
-
-[TikTok](https://tiktok.com/@elite6_27)
+[Twitter](
